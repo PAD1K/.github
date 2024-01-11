@@ -1,1 +1,0 @@
-PAD1K Organization
